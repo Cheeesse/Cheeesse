@@ -1,1 +1,2 @@
 <img src="https://i.loli.net/2021/04/01/EWgBK9aF2dJUf1T.jpg" width=65% height=65%>
+<a href="https://my.flightradar24.com/Cheeesse"><img src="https://banners-my.flightradar24.com/Cheeesse.png" alt="My Flightdiary.net profile"  /></a>
